@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩🏽‍💻 I'm currently a student majoring in computer science.<br>🛠️ I'm looking to collaborate on coding, app development projects.<br>📘🔎 ask me anything. 
+👩🏽‍💻 I'm currently a student majoring in computer science.<br>🛠️ I'm looking to collaborate on coding, app development projects.<br>🔎 ask me anything. 
 
 
 ## 🌐 Socials:
